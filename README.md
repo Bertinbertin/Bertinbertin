@@ -4,7 +4,7 @@
 Com uma mente artística e grande interesse por novos conhecimentos, me encaixo em um perfil criativo, empático, ágil, comunicador, capaz de trabalhar em equipe e com ambição de crescimento profissional.
 - 📚CEUB: Bacharelanda Eng. de Software
 - 📚UNB: Bacharelanda Interpretação Teatral
-- 🍀Inglês fluente
+- 🍀Inglês avançado
 - 📍Brasília- DF
 
 ##
